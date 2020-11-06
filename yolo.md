@@ -8,10 +8,10 @@ Quand la grosse lune regarde Maggie par dessus les haies elle sourit et respire 
 Si on court très vite vers l'Est aussi vite que la course de la Terre autour de son axe peut-être qu'on arrête le temps. 
 Maggie crache sa fumée dans les petites feuilles gelées et pouffe comme un train à vapeur.
 
-Un ***tiens*** vaut _mieux_ que deux tu l'auras.
+Un ***tiens*** vaut _mieux_ que deux ***tu l'auras***.
 
 hihihi
 
 C cool *ouais*
 
-tartinade aux lucioles
+~~tartinade aux lucioles~~
